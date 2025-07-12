@@ -25,7 +25,7 @@
 
 6. **Contact Us**  
    If you have questions or requests regarding your data, please contact us at:  
-   **privacy@yourdomain.com**
+   **wrig-nanosystems@wrig.in**
 
 ---
 
